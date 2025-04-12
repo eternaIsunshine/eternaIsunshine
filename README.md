@@ -42,7 +42,7 @@
 
 <p align="center"
 
-𓏵　  　ℛead ℳy ℛentry ℱor ℳore 𝐼nfo 　 　⋌
+𓏵　  　𝒲2i & 𝐼wc 　 　⋌
 
 </p>
 

@@ -36,13 +36,26 @@
 
 <p align="center"
 
-𓏏𓏏  　◟  **𝓢he**  ノ ℋer 　 ᛝ 　 ℬig 𝒜riana 𝒢rande ℱan
+𓏏𓏏  　◟  **𝓢he**  ノ ℋer 　 ᛝ 　 𝒞+ℋ 𝒾s ℱine, 𝒷ut 𝓅lease 𝒹on't 𝓉alk 2 𝓂e 𝓌hen 𝒾'm 𝓌ith 𝓂y 𝒻riends (𝓌2i ℴnly)
 
 </p>
 
 <p align="center"
 
-𓏵　  　𝒲2i & 𝐼wc 　 　⋌
+𓏵　  　𝒲2i & 𝐼wc　 ︵ 　𝒮low ℛeplies, 𝒜lways 𝒪fftab/𝒜fk 　⋌
+
+</p>
+
+<p align="center"
+
+⠀⠀⠀ ࣪⠀⠀![](https://pixels.crd.co/assets/images/gallery101/2e232884.gif?v=99d3974e)⠀⠀ ׅ　 𝒮ign 𝓂y 𝒜taℬook ℴr 𝒟raw 𝒾n 𝓂y 𝒮traw𝒫age ⠀⌣⌣⌣
+
+</p>
+
+
+<p align="center"
+
+⠀⠀⠀⠀♰⠀   𓈒  ⠀𝒰sually 𝓌ith 𝓂y 𝓈illy 𝓉rio⠀ ﾉ⠀ℬe 𝓂y 𝒻riend 𝓅lease   ![](https://pixels.crd.co/assets/images/gallery71/6196179c.gif?v=99d3974e)
 
 </p>
 

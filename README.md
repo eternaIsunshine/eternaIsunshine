@@ -36,7 +36,7 @@
 
 <p align="center"
 
-𓏏𓏏  　◟  **𝓢he**  ノ ℋer 　 ᛝ 　 𝒞+ℋ 𝒾s ℱine, 𝒷ut 𝓅lease 𝒹on't 𝓉alk 2 𝓂e 𝓌hen 𝒾'm 𝓌ith 𝓂y 𝒻riends (𝓌2i ℴnly)
+𓏏𓏏  　◟  **𝓢he**  ノ ℋer 　 ᛝ 　 𝒞+ℋ 𝒾s ℱine, 𝒷ut 𝐼 𝒹on't 𝓇eally 𝓉alk 𝓂uch 𝓈o 𝐼 𝒶pologise T_T
 
 </p>
 

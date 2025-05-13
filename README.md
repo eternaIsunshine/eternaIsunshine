@@ -14,6 +14,8 @@
 
 [rentry](https://rentry.co/glindathegoodwitch)⠀⠀⺀⠀⠀[atabook](https://glinda.atabook.org)
 
+</p>
+
 <p align"center"
 
 ![](https://64.media.tumblr.com/54b8c65920973f2b90d6dd85e419e3ed/5f632c23143e1109-1b/s1280x1920/094c8a33610252611e84cfcff4be517e9a31c250.pnj)

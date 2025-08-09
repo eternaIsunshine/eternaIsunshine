@@ -1,3 +1,9 @@
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=eea298&label=eternaIsunshine+♡&abbreviated=true)
+
+</div>
+
 <p align"center"
 
 ![](https://64.media.tumblr.com/269455225ea73f80a781ac4fb3cd3b01/0b512894c153ca12-44/s2048x3072/30143761d93424e9d6399323a6b1bd37317aac64.pnj)

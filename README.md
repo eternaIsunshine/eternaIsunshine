@@ -12,7 +12,7 @@
 
 <div align="center">
 
-𓈒 ꒪ㅤ [rentry](https://rentry.co/glindathegoodwitch)　　࿐ྂ。　๋　[atabook](https://glinda.atabook.org/) 　𓈒　　❀　｡　ᵔ
+𓈒 ꒪ㅤ [rentry](https://rentry.co/glindathegoodwitch)　　࿐ྂ。　๋　[atabook](https://glinda.atabook.org/) 　𓈒　　❀　｡　ᵔ　[strawpage](https://dangerousdiaries.straw.page/)　﹒　　˚
 
 </div>
 

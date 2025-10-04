@@ -1,6 +1,6 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=eea298&label=may+madness&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=eea298&label=may+madness)
 
 </div>
 

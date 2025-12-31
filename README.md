@@ -1,12 +1,12 @@
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=eea298&label=may+madness)
+![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=b04c61&label=mangkwan+clan)
 
 </div>
 
 <p align"center"
 
-![](https://64.media.tumblr.com/269455225ea73f80a781ac4fb3cd3b01/4befe6e01c33aae5-69/s1280x1920/a0dbc938a2a149e40c3c41fd3a8d7118d13ca971.pnj)
+![](https://64.media.tumblr.com/825b0b61ab54507edfa5a31c6d79ed9c/c9348ca87ad645a7-64/s2048x3072/5497664f28084bc96b5d35dc1748b8ebb62ce005.pnj)
 
 </p>
 
@@ -18,6 +18,6 @@
 
 <p align"center"
 
-![](https://64.media.tumblr.com/7c2555e780ed41fa4ab93149f32e3af5/0b512894c153ca12-70/s1280x1920/2f79b71e307dd18b2775aefd1d73ec5e97049656.pnj)
+![](https://64.media.tumblr.com/13cbcd50fc53cf04242110f32eece12a/c9348ca87ad645a7-68/s2048x3072/aea756b8bb9ce3589e0daf1e8e8ce72c68b8e46d.pnj)
 
 </p>

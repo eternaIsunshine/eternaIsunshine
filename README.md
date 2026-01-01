@@ -12,7 +12,7 @@
 
 <div align="center">
 
-[rentry](https://rentry.co/glindathegoodwitch)　　　　[atabook](https://glinda.atabook.org/) 　ㅤ ㅤ 　[pronouns.cc](https://pronouns.cc/@galinda)　ㅤ ㅤ 　[strawpage](https://dangerousdiaries.straw.page/)
+[rentry](https://rentry.co/glindathegoodwitch)　　　　[atabook](https://glinda.atabook.org/) 　ㅤ ㅤ 　[pronouns.cc](https://pronouns.cc/@galinda)
 
 </div>
 

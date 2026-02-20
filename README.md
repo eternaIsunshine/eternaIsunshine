@@ -10,6 +10,12 @@
 
 </div>
 
+<div align="center">
+
+join my [discord server](https://discord.gg/8XnMPMZKhQ)
+
+</div>
+
 <p align="center">
 
 ![](https://64.media.tumblr.com/f4cd48a654f75575152dc3d6fb8feaec/a31f90e533ad21d0-ef/s1280x1920/21f318bcbbee7c28291b483e0b092efdcc38ca0d.pnj)

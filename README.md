@@ -6,7 +6,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=907ec6&label=bags)
+![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=bd859e&label=sweetener)
 
 </div>
 
@@ -18,7 +18,7 @@ join my [discord server](https://discord.gg/8XnMPMZKhQ)
 
 <p align="center">
 
-![]
+![](https://64.media.tumblr.com/b7fa709b107361f79104fe9723c93303/93906405e80caade-09/s1280x1920/2f2cb6aa1e354266c01db5a577d3b9e0bdc861af.gifv)
 
 </p>
 
@@ -30,7 +30,7 @@ join my [discord server](https://discord.gg/8XnMPMZKhQ)
 
 <p align="center">
 
-![](https://64.media.tumblr.com/bdec66d72374c12a4fd60e722d7979a4/a31f90e533ad21d0-b5/s2048x3072/94fbb3312fbd50fa174b67ce6c05cabc9821458a.pnj)
+![](https://64.media.tumblr.com/3e540bd81f02117228240263102ca2f0/a071d90482a85ec9-7a/s2048x3072/500a5bc0b23a3d03b0b623cc583a5b9dabc4e6a7.pnj)
 
 </p>
 
@@ -42,6 +42,6 @@ matching w THE cousin [wan](https://github.com/soleumm) 🥺
 
 <p align="center">
 
-![](https://64.media.tumblr.com/a389d0ce35c87567f91fade3efed446b/a31f90e533ad21d0-9f/s2048x3072/3a06e6b18803638575971614f4dbaf89d4a7ec41.pnj)
+![](https://64.media.tumblr.com/a65055c8f44681617534ac8e9b31ce5f/a071d90482a85ec9-12/s2048x3072/498dc3046e7b937ddf52ba0790ec13d8b6be4e13.pnj)
 
 </p>

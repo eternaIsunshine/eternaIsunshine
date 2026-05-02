@@ -6,7 +6,7 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=bd859e&label=sweetener)
+![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=bd859e&label=petal+in+the+pavement)
 
 </div>
 

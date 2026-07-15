@@ -1,36 +1,36 @@
 <p align="center">
 
-![](https://64.media.tumblr.com/e1e4a5b1e637006a27c6760c2d35965f/a071d90482a85ec9-c7/s2048x3072/344a354dbabb2873dce7279fa67b7f8ea2068b44.pnj)
+![](https://64.media.tumblr.com/b1229a7a45ecb22cf7c7393270fb601d/2e0e54216fcbad02-c8/s2048x3072/ff61a19b76c98710c54d944c943fefc9fce75e61.pnj)
 
 </p>
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=bd859e&label=petal+in+the+pavement)
+![](https://komarev.com/ghpvc/?username=eternaIsunshine&color=342a5f&label=everything+is+embarrassing)
 
 </div>
 
 <div align="center">
 
-join my [discord server](https://discord.gg/8XnMPMZKhQ)
+join my [ariana grande discord server](https://discord.gg/8XnMPMZKhQ)
 
 </div>
 
 <p align="center">
 
-![](https://64.media.tumblr.com/b7fa709b107361f79104fe9723c93303/93906405e80caade-09/s1280x1920/2f2cb6aa1e354266c01db5a577d3b9e0bdc861af.gifv)
+![](https://64.media.tumblr.com/3022e6b9a7566c3997ae02c6722d3ccf/2e0e54216fcbad02-19/s2048x3072/8f6f33998f0e7501139a5af04f480682af09927f.pnj)
 
 </p>
 
 <div align="center">
 
-[rentry](https://rentry.co/glindathegoodwitch)　　　　[atabook](https://glinda.atabook.org/) 　ㅤ ㅤ 　[pronouns.cc](https://pronouns.cc/@galinda)
+[rentry](https://rentry.co/glindathegoodwitch)　　　　[atabook](https://glinda.atabook.org/) 　ㅤ ㅤ 　[pronouns.cc](https://pronouns.cc/@galinda) 　ㅤ ㅤ 　[strawpage](https://dangerousdiaries.straw.page/)
 
 </div>
 
 <p align="center">
 
-![](https://64.media.tumblr.com/3e540bd81f02117228240263102ca2f0/a071d90482a85ec9-7a/s2048x3072/500a5bc0b23a3d03b0b623cc583a5b9dabc4e6a7.pnj)
+![](https://64.media.tumblr.com/67ef0591ea5a32822cb3fc2c3a73de8a/2e0e54216fcbad02-9f/s2048x3072/818eab5ce631840c26681a14e7ce5708ace5d5d7.pnj)
 
 </p>
 
@@ -42,6 +42,6 @@ matching w THE cousin [wan](https://github.com/soleumm) 🥺
 
 <p align="center">
 
-![](https://64.media.tumblr.com/a65055c8f44681617534ac8e9b31ce5f/a071d90482a85ec9-12/s2048x3072/498dc3046e7b937ddf52ba0790ec13d8b6be4e13.pnj)
+![](https://64.media.tumblr.com/7d5da9c7c9c1052b79fe114ca95011af/2e0e54216fcbad02-5f/s2048x3072/26852f5d186914db1ceba929ea6c3a683d1540fb.pnj)
 
 </p>
